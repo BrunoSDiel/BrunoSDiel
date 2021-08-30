@@ -1,22 +1,10 @@
 - 👋 Hi, I’m @BrunoSDiel FROM BRAZIL
-- OBS #FORABOLSONARO (2021)
+
 - 👀  I’m interested in DATA PROGRAMING WITH IMG INDEX!
-- 🌱  I’m currently learning THE BLOCKCHAIN AND SMARTCONTRACTS, ofCourse.. >>
+- 🌱  I’m currently learning THE BLOCKCHAIN AND SMARTCONTRACTS >>
+- 
+- então:
 ? gif o que vem em seguida
-! uau
-n 💞️ I’m looking to collaborate on ...I DON'T KNOW YET :/
-and
-vai:
-
-
-
-
-
-
-
-
-
-
 > img mailto:info@stg23.com
 > aguardando resp.
 > 
